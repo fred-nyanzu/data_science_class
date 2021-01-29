@@ -1,4 +1,6 @@
 We will be good
 Yes we will
-They are here
+They failed to show up
 Who, the students? 
+Talk to Professor
+
